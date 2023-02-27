@@ -1,1 +1,1 @@
-# Welcome to my personal Portfolio that showcases my work!
+# Welcome to my personal Portfolio that showcases my skills!
